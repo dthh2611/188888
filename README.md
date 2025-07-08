@@ -36,7 +36,7 @@
 通过遵循上述建议，您将能够找到并安全观看高清日本AV影片，同时避免不必要的风险。保持良好的观看习惯，确保您的观看体验既愉快又安全。
 
 
-<span style="display:none;">[Canonical link] ( ）</span>
+<span style="display:none;">[Canonical link] ( https://github.com/dthh2611/188888 ）</span>
 
 
 
